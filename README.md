@@ -1,0 +1,2 @@
+# zeynepsavasatasozleri
+atasözleri
